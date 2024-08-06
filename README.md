@@ -1,8 +1,8 @@
- ✨ Gabriel Maravilhoso ✨ 
-- 👋 Hi, I’m @gabriellmardegan
+        ✨ Gabriel Maravilhoso ✨ 
+- 👋 14Y
 - 👀 OLHANDO MEU PERFIL........
 - 🌱 NATURE ...
-  😝"SEJA VOCE MESMO"
+- 😝"SEJA VOCE MESMO"
 - 😴 AMO DORMIR
 - 😄 MIMADO SIM.........
 - 🤩 IMNSTAGRAN: @gabrimardegan
