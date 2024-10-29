@@ -5,7 +5,7 @@
 - 😝"SEJA VOCE MESMO"
 - 😴 AMO DORMIR
 - 😄 MIMADO SIM.........
-- 🤩 INSTAGRAN: @gabrimardegan
+- 🤩 INSTAGRAM: @gabrimardegan
 
 <!---
 gabriellmardegan/gabriellmardegan is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
